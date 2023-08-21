@@ -1,7 +1,5 @@
 # ⚔️GG DUELS⚔️
 
-## RULES:
-
 - No FFA  
 - No Toxicity  
 - No Cheating  
