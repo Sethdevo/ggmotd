@@ -10,6 +10,6 @@ RULES:
 
 [Click Here to Join Our Discord](https://discord.gg/B23MamYQde)
 
-![](https://cdn.discordapp.com/attachments/1029391012499570759/1143241362410582157/636e0a6a49cf127bf92de1e2_icon_clyde_blurple_RGB.png)
+![](https://cdn.discordapp.com/attachments/1029391012499570759/1143252903725908118/h43efwdqs.png)
 
 [Click Here to Join Our Discord](https://discord.gg/B23MamYQde)
