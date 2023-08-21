@@ -1,5 +1,4 @@
-![Seymour](https://cdn.discordapp.com/attachments/288528119525146635/8907466
-48089722940/seymour-plush.jpg)
+![Seymour](https://cdn.discordapp.com/attachments/720659053830996097/1143262907438747669/image.png)
 # ⚔️GG DUELS⚔️
 
 - No FFA  
