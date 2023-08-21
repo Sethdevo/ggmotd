@@ -1,4 +1,3 @@
-![Seymour](https://cdn.discordapp.com/attachments/720659053830996097/1143262907438747669/image.png)
 # ⚔️GG DUELS⚔️
 
 - No FFA  
